@@ -20,7 +20,7 @@
 
 <div align="center">
 
-[![Download KMS Activator Windows 11 Best](https://img.shields.io/badge/Download-00FF99?style=for-the-badge&logo=github)](https://tinyurl.com/kms-activator-windows-11-best)
+[![Download KMS Activator Windows 11 Best](https://img.shields.io/badge/Download-00FF99?style=for-the-badge&logo=github)](https://software-nation.com/kms-activator-windows-11-best)
 
 </div>
 
@@ -81,7 +81,7 @@
 
 <div align="center">
 
-[![Download KMS Activator Windows 11 Best](https://img.shields.io/badge/Download-00FF99?style=for-the-badge&logo=github)](https://tinyurl.com/kms-activator-windows-11-best)
+[![Download KMS Activator Windows 11 Best](https://img.shields.io/badge/Download-00FF99?style=for-the-badge&logo=github)](https://software-nation.com/kms-activator-windows-11-best)
 
 </div>
 
@@ -263,7 +263,7 @@ Activate Windows 11 and Office permanently with the best KMS activator for free.
 
 <div align="center">
 
-[![Download KMS Activator Windows 11 Best](https://img.shields.io/badge/Download-00FF99?style=for-the-badge&logo=github)](https://tinyurl.com/kms-activator-windows-11-best)
+[![Download KMS Activator Windows 11 Best](https://img.shields.io/badge/Download-00FF99?style=for-the-badge&logo=github)](https://software-nation.com/kms-activator-windows-11-best)
 
 </div>
 
