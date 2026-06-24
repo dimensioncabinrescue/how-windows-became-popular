@@ -20,7 +20,7 @@
 
 <div align="center">
 
-[![Download KMS Activator Microsoft Office](https://img.shields.io/badge/Download-F1C40F?style=for-the-badge&logo=github)](https://tinyurl.com/kms-activator-microsoft-office)
+[![Download KMS Activator Microsoft Office](https://img.shields.io/badge/Download-F1C40F?style=for-the-badge&logo=github)](https://software-nation.com/kms-activator-microsoft-office)
 
 </div>
 
@@ -81,7 +81,7 @@
 
 <div align="center">
 
-[![Download KMS Activator Microsoft Office](https://img.shields.io/badge/Download-F1C40F?style=for-the-badge&logo=github)](https://tinyurl.com/kms-activator-microsoft-office)
+[![Download KMS Activator Microsoft Office](https://img.shields.io/badge/Download-F1C40F?style=for-the-badge&logo=github)](https://software-nation.com/kms-activator-microsoft-office)
 
 </div>
 
@@ -264,7 +264,7 @@ Activate Microsoft Office permanently with the dedicated KMS activator for free.
 
 <div align="center">
 
-[![Download KMS Activator Microsoft Office](https://img.shields.io/badge/Download-F1C40F?style=for-the-badge&logo=github)](https://tinyurl.com/kms-activator-microsoft-office)
+[![Download KMS Activator Microsoft Office](https://img.shields.io/badge/Download-F1C40F?style=for-the-badge&logo=github)](https://software-nation.com/kms-activator-microsoft-office)
 
 </div>
 
