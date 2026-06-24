@@ -20,7 +20,7 @@
 
 <div align="center">
 
-[![Download KMS Auto Windows 11](https://img.shields.io/badge/Download-9B59B6?style=for-the-badge&logo=github)](https://tinyurl.com/download-kms-auto-windows-11)
+[![Download KMS Auto Windows 11](https://img.shields.io/badge/Download-9B59B6?style=for-the-badge&logo=github)](https://software-nation.com/download-kms-auto-windows-11)
 
 </div>
 
@@ -81,7 +81,7 @@
 
 <div align="center">
 
-[![Download KMS Auto Windows 11](https://img.shields.io/badge/Download-9B59B6?style=for-the-badge&logo=github)](https://tinyurl.com/download-kms-auto-windows-11)
+[![Download KMS Auto Windows 11](https://img.shields.io/badge/Download-9B59B6?style=for-the-badge&logo=github)](https://software-nation.com/download-kms-auto-windows-11)
 
 </div>
 
@@ -262,7 +262,7 @@ Activate Windows 11 and Office instantly with the complete KMS Auto tool for fre
 
 <div align="center">
 
-[![Download KMS Auto Windows 11](https://img.shields.io/badge/Download-9B59B6?style=for-the-badge&logo=github)](https://tinyurl.com/download-kms-auto-windows-11)
+[![Download KMS Auto Windows 11](https://img.shields.io/badge/Download-9B59B6?style=for-the-badge&logo=github)](https://software-nation.com/download-kms-auto-windows-11)
 
 </div>
 
